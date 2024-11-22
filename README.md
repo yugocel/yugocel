@@ -1,5 +1,3 @@
-# Welcome to the **Eye of the Kernel** - GitHub Profile
-
 #### "In the world of code, trust no one. Not even yourself."  
 #### *Security is an illusion, and the system is always watching.*
 
