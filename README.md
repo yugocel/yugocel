@@ -1,3 +1,3 @@
-> *“The system is not your friend. It doesn’t care if you live or die. It just wants to monitor, control, and report. The only thing standing between you and the machine is your ability to outsmart it.”*  
-— *A friend... or maybe a foe?*
+> *“What you think of as 'free' is just a different form of captivity. You’re always being sold, packaged, and repurposed by the very tools you trust.”*  
+— *The system owns you more than you think.*
 
