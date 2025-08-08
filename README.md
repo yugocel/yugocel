@@ -1,3 +1,2 @@
-> *“What you think of as 'free' is just a different form of exploitation. You’re always being sold, packaged, and repurposed by the very tools you trust.”*  
-— *The system owns you more than you think.*
-
+Steel veins hum under my feet.
+Names dissolve in rain.
